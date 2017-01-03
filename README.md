@@ -1,2 +1,0 @@
-# chaojixiaoshu.github.com
-homepage
